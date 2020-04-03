@@ -1,0 +1,1 @@
+a small page filter for meirkids.co.il channel
